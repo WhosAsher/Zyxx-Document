@@ -1,6 +1,6 @@
 # DOXXING
 
-## Here is a screenshot of Zyxx threatining to order pizza to my house, as well as admitting hes been in trouble with the police.
+## Here is a screenshot of Zyxx threatining to order pizza to my house, saying the n word, as well as admitting hes been in trouble with the police in the past.
 ![image](https://github.com/user-attachments/assets/599b42eb-7b57-44c4-87ab-7c84d200125a)
 
 ## Screenshot of him threatining to leak my Full name, phone number, and home address. (He deleted the message)
